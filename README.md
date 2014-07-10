@@ -1,6 +1,3 @@
-as
-as
-a
 
 a
 a
